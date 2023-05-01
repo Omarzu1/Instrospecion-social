@@ -1,1 +1,3 @@
 # Instrospecion-social
+En la actualidad las mujeres son reprimidas por sus parejas para expresar libremente su sexualidad y más íntimos deseos por miedo al rechazo ...
+Es por ello que con gusto invito a jóvenes y bellas damas de entre 18 y 33 años a cumplír sus fantasias sexuales sin discriminación o cuestionamientos a sus más obscuras peticiones sexuales , entendiendo dicha situación de mi parte solo pido sean ellas mismas y expresen lo que desean 
